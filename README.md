@@ -1,16 +1,18 @@
-## Hi there 👋
+# Maria Faye R. De la Peña  
 
-<!--
-**mariafayerojasdelapena25-rgb/mariafayerojasdelapena25-rgb** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+My name is Maria Faye R. De la Peña, and I'm excited to learn about GitHub!  
 
-Here are some ideas to get you started:
+---
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🌟 My Hobbies & Interests  
+
+- Cooking – I started learning how to cook during the pandemic, and now I love creating my own comfort food.  
+- Walking/Jogging – I enjoy staying active and clearing my mind while walking or jogging.  
+- Listening to Music – I like exploring different genres, especially vintage sounds like Ella Fitzgerald, jazz, Laufey’s calm songs, and OPM.  
+- Junk Journaling – I find joy in creatively expressing myself through journaling with scraps, doodles, and designs.  
+- Collecting & Preserving Flowers – I love keeping memories alive by pressing and preserving flowers.  
+- Picture-Taking– Capturing moments through photos helps me appreciate little details in life.  
+- Video-Making – I enjoy recording and editing videos to tell stories or document experiences.  
+- The Ocean – I feel calm and inspired whenever I’m near the ocean, listening to the rhythm of the waves.  
+- The Color Blue💙 – Blue is my favorite color because it reminds me of peace, depth, and endless skies.  
+- Stargazing – Looking up at the stars makes me feel connected to the universe and sparks my sense of wonder.  
